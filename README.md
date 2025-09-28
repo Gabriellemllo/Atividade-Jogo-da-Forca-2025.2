@@ -1,0 +1,1 @@
+# Atividade-Jogo-da-Forca-2025.2
